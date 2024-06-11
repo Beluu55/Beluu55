@@ -1,6 +1,6 @@
 # ¡Hola! 👋 Soy Belén Abalde
 
-### Desarrolladora de Software
+### Desarrolladora de Software (Junior Advanced)
 
 ---
 
